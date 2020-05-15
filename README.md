@@ -1,0 +1,1 @@
+# ajuda_trab_manu
